@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on my minor project.<br>
+I'm currently studying Computer Engineering.<br>
 
 
 ## 🌐 Socials:
